@@ -1,0 +1,53 @@
+# 暁Records – 酔生夢死 -Hedonism-
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+誰かと同じ服を着て 同じ言葉で笑えれば
+望んだ者になれるのか お前の夢見た未来に
+誰とも違う自分の ツノを切り落とすのか
+キバを隠して笑っても 俯いた目は泣いている
+
+歌え踊れ酔え 無我の境地で
+酔生夢死も上等 全ては夢
+酒酔う如く生き夢見て死のう!
+祭りの熱に融けて小我 繚乱、狂乱、
+力尽きたら来世までごきげんよう
+
+Everybody dance, Everybody sing,
+Party Holic, Party Holic Hedonistic!
+Everybody dance, Everybody sing,
+Party Holic, Party Holic 最期まで
+
+誰も指図は出来ない どれも間違いじゃない
+なにがお前を作るのか 自ら選び喰らいつけ
+歌え踊れ酔え リビドー入り乱れ
+醉生夢死も上等 現の夢
+
+酒酔う如く生き夢見て死のう!
+祭りの熱に融けて小我
+後悔、憎愛、今際の際には笑ってさようなら
+
+Everybody dance, Everybody sing,
+Party Holic, Party Holic Hedonistic!
+Everybody dance, Everybody sing,
+Party Holic, Party Holic 最期まで
+
+酔い痴れて刹那の快楽主義
+脱いで踊りゃあなんもかんも同じ
+清濁、濃淡、陰陽、男でも女でもまんなかでも
+
+酒酔う如く生き夢見て死のう!
+祭りの熱に融けて小我
+繚乱、狂乱、力尽きたら来世までごきげんよう
+
+Everybody dance, Everybody sing,
+Party Holic, Party Holic Hedonistic!
+Everybody dance, Everybody sing,
+Party Holic, Party Holic 最期まで
+
+Everybody dies or to be forgotten
+So Party Holic, Party Holic Hedonistic!
+Everybody dance, Everybody sing,
+So Party Holic, Party Holic 末期まで
+```
